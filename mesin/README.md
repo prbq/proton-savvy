@@ -120,3 +120,10 @@ Solution : Modif CKP, langsung dorong aja ke bengkel GT Joe
 Speed Sensor
 
 ![alt text](image-3.png)
+
+# Seal Busi
+Seal bagian atas dari busi
+
+Seal bagian atas dari busi
+![](https://1652154664-files.gitbook.io/~/files/v0/b/gitbook-legacy-files/o/assets%2F-MfKfmtj2CedZaGX6dnY%2F-MfMtn9eG0ToVfRbYHXp%2F-MfMvwwoLNb_JuCIL603%2Fseal.jpg?alt=media\&token=37b866cb-09bb-42d8-a054-f03ee07ba2ea)
+![alt text](image-4.png)
